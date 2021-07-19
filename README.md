@@ -5,7 +5,7 @@
 
 
 - 🔭 I’m currently working on ... Youtube
-- 🤔 I’m looking for help with ... PeperoniTech.xyz
+- 🤔 I’m looking for help with ... Peperoni.tech
 - 💬 Ask me about ... Anything
 - 📫 How to reach me: ... [YouTube](https://www.youtube.com/channel/UCLcfisMFGKngwMkAjtLs6ug) 
 - 😄 Pronouns: ... He/Him
