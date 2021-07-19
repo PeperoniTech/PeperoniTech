@@ -1,4 +1,5 @@
-![ezgif com-gif-maker](https://user-images.githubusercontent.com/87663637/126197610-12fea8a8-2f45-4866-8573-fe8602579d17.gif)
+![Nice peperoni gif](https://user-images.githubusercontent.com/87663637/126199361-54442a41-da56-461b-9680-a6df37b46caa.gif)
+
 
 # Hi there, i'm Peperoni Tech👋
 
